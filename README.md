@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on whatever I'm working on at the moment
 - 📫 How to reach me auro.jimenezr@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm a physicist
+- ⚡ Fun fact: Im actually a forest creature that found a way to use the internet through the mycelium
 
 <!---
 auroJimen/auroJimen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
